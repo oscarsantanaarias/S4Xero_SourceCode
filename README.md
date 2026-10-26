@@ -8,4 +8,4 @@ It doesn't matter if they change key, decrypt type, whatever I will always get t
 Feel free to use them, they are fully decrypted!
 
 
-https://mega.nz/file/cBJHXTRa#1PxW6w...1HYC3UyFWuJS8U
+[https://mega.nz/file/cBJHXTRa#1PxW6w...1HYC3UyFWuJS8U](https://mega.nz/file/cBJHXTRa#1PxW6wS2mgHsQTMIsEMQblAOF9ZUE1HYC3UyFWuJS8U)
