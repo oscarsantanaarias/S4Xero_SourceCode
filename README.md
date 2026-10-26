@@ -1,6 +1,8 @@
 # S4Xero_SourceCode will be available soon!
 S4Xero Resources free on mega upload
 
+Thanks CC, Vivya for the help and motivation!
+
 Hello, here are the S4Xero resources free.
 
 It doesn't matter if they change key, decrypt type, whatever I will always get them with not effort.
